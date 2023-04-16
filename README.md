@@ -1,5 +1,7 @@
 # blog
 
+Fajna msza dla Dzieci online o 11 czasu UK: https://msza-online.net/parafia-w-borowcu/
+
 Minecraft
 
 Dom 					          10027 62 9999
