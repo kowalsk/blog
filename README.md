@@ -1,6 +1,9 @@
 # blog
 
+https://github.com/kowalsk/blog/blob/main/SwMichaleArchaniele.html
+
 Fajna msza dla Dzieci online o 11 czasu UK: https://msza-online.net/parafia-w-borowcu/
+
 
 Minecraft
 
